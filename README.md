@@ -1,1 +1,0 @@
-# LaboratoryExam1
